@@ -1,4 +1,4 @@
-BOAS VINDAS AO MEU PERFIL
+BOAS VINDAS AO MEU PERFIL 🩷
 
 Meu nome é Maria Luiza
 
